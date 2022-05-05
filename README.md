@@ -1,0 +1,5 @@
+- meu nome é João Ademar
+- Estou interessado em aprender ciências da computacao
+- estou aprendendo no gir hub
+- procuro coloborar na aula
+- meu cadastro digital é joaoademarfrohlich@gmail.com 
